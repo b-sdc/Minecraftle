@@ -20,7 +20,7 @@ There are several modes in this game just like there are different game modes in
  
  Minecraftle walkthrough:
  
- (I accidentally forogt to record my computer sound. The sound file ran on creative and hardcore but not survival)
+ (I accidentally forgot to record my computer sound. The sound file ran on creative and hardcore but not survival)
  
  https://youtu.be/ufxx0u7zWSo
  
